@@ -1,3 +1,4 @@
 # NewLife
 Learn
-This is the branch!!!! 
+TIME TO BUILD A BILLION DOLLAR COMPANY
+
